@@ -1,5 +1,5 @@
 ## Hi there 👋
-
+https://drive.google.com/drive/folders/1JzGqEM2NpRByaHLkiJD0znw4v-reXNLT?usp=drive_link
 <!--
 I am a very curious man who has adopted the principle of continuous self-improvement. I do research and reading on history, artificial intelligence, finance, engineering, space, mathematics, physics, politics and psychology. I also write articles about some of them.
 
